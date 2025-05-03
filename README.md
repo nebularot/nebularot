@@ -10,6 +10,9 @@ $\Huge\color{#7638f3}{\textsf{ < CHURCH 3 }}$    <br>
     </p>
 
 <p align="center">
+<img src="https://files.catbox.moe/h4y0ja.png"> <img src="https://files.catbox.moe/9gzned.png"> <img src="https://files.catbox.moe/hvtkvx.gif">
+
+<p align="center">
 <img src="https://files.catbox.moe/k75jaf.webp"> <img src="https://files.catbox.moe/2jixbt.webp">
 
 <p align="center">
