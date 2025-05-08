@@ -12,7 +12,7 @@ $\Huge\color{#7638f3}{\textsf{ PRONOUNS CHANGE A LOT!1!! }}$    <br>
 <p align="center">
 $\Huge\color{#7638f3}{\textsf{ᶦ ᵇˡᵒᶜᵏ ˢᵖᵃᵐ ᶠᵒˡˡᵒʷˢ}}$    <br>
 <p align="center">
-<img src="https://files.catbox.moe/h4y0ja.png"><img src="https://files.catbox.moe/9gzned.png"><img src="https://files.catbox.moe/hvtkvx.gif">
+<img src="https://files.catbox.moe/q2rhan.webp"><img src="https://files.catbox.moe/9gzned.png"><img src="https://files.catbox.moe/hvtkvx.gif">
 <p align="center">
 <img src="https://files.catbox.moe/k75jaf.webp"><img src="https://files.catbox.moe/2jixbt.webp">
 <p align="center">
