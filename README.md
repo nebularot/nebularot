@@ -16,4 +16,6 @@ $\Huge\color{#7638f3}{\textsf{ᶦ ᵇˡᵒᶜᵏ ˢᵖᵃᵐ ᶠᵒˡˡᵒʷˢ}}
 <p align="center">
 <img src="https://files.catbox.moe/k75jaf.webp"><img src="https://files.catbox.moe/2jixbt.webp">
 <p align="center">
+<img src="https://files.catbox.moe/st6pni.gif">
+<p align="center">
 <img style="width: 55%; height: 70%" src="https://gifcity.carrd.co/assets/images/gallery251/5525f26f.gif?v=e3c0bc0f"> <br>
