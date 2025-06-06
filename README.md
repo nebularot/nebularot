@@ -15,6 +15,8 @@ PRONOUNS CHANGE A LOT!1!!
 <p align="center">
 ᶦ ᵇˡᵒᶜᵏ ˢᵖᵃᵐ ᶠᵒˡˡᵒʷˢ
 <p align="center">
+<img src=https://files.catbox.moe/34rk6i.png><img src=https://files.catbox.moe/fl7qgy.png><img src=https://files.catbox.moe/fppegn.png>
+<p align="center">
 <img src="https://files.catbox.moe/q2rhan.webp"><img src="https://files.catbox.moe/9gzned.png"><img src="https://files.catbox.moe/hvtkvx.gif">
 <p align="center">
 <img src="https://files.catbox.moe/k75jaf.webp"><img src="https://files.catbox.moe/2jixbt.webp">
