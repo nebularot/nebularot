@@ -5,7 +5,7 @@
 <p align="center">
 ☆ I BLOCK LOOSELY, IDGAF XDDD !! ☆
 <p align="center">
-PRONOUNS CHANGE A LOT!1!!
+A BIT SLOW, BUT I'M TRYING
 <p align="center">
 (≧▽≦)
 <p align="center">
